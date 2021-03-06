@@ -6,4 +6,5 @@ hello bear
 I love juiichi forever
 l love mikazuki juiichi forever
 now and forever
-the first step to reach him
+the first step to reach him 
+my stupid boss3
