@@ -5,3 +5,4 @@ hello mizih
 hello bear
 I love juiichi forever
 l love mikazuki juiichi forever
+now and forever
